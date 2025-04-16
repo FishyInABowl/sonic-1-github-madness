@@ -21,6 +21,8 @@ min3r can't be here
 
 dg would be here but he couldn't make it, so here's his replacement
 
+fishy here, how do i participate in the next one? 2025
+
 
 
 ![](https://media.discordapp.net/attachments/743958840655085573/1055671926560935946/image.png)
